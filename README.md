@@ -1,3 +1,3 @@
 # Triport City Chronicles Event Log
 
-## [Arc 1](https://github.com/AmnesicOblex/tcc-event-log/tree/master/arc-1)
+## [Arc 1](arc-1/overview.md)
