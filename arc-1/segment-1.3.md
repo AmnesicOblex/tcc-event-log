@@ -223,3 +223,26 @@
 - While mulling over this connection, a commotion at the constabulary alerted Dottie and Seplo to the discovery of the Butcher's black cab, abandoned outside Crabgrass Park.
 - After rushing to the scene, Dottie went over to the carriage and after looking over the carriage tried the door, triggering a fiery explosion, killing two horses and a couple constables.
 - Out of the wreckage crawled six mechanical spiders, each the size of a large dog.
+
+## Session 1.3.10
+
+### 22nd of Highsun, 756 (cont.)
+
+- Dottie and Seplo were quickly overwhelmed by the mechanical spiders. Luckily, the rest of the party showed up to help. Alder Wisteria, who happened to be in the area with some political dissidents came to their assistance as well.
+- At the advice of Halfwit the talking deck of cards, Lars drank potion 201 which gave him incredible strength to help destroy the spiders.
+- Darvog collected 92 scraps of metal from all the destroyed spiders.
+- Alder called down Authority, an angelic presence who helped the party defeat the spiders.
+- Afterwards the party returned to 449 Griffin Street.
+- On their front porch they found a stack of posters of Emmet Rockhead (Basalt)|Emmet Rockhead, left by Theodore "Teddy" Henry Silverseed|Teddy.
+- Seplo spoke with his two urchins, Jonas and Barney, about their surveillance of Theodore "Teddy" Henry Silverseed|Teddy.
+
+### 23rd - 29th of Highsun, 765
+
+- Dottie wrote several letters to loved ones including Mother Superior Anfisa, Ellis, and Beck. She also spoke with Professor Francis Glittersack and took Juniper "June" Snapdragon out for some ice cream.
+- Seplo spent some time collecting protection money for the Elemental Fist in Tarlem gaining him 2 renown.
+- Seplo also had an odd encounter with a broken window and a large stone tablet.
+- Betty spent her week working at the blacksmith gaining her 2 renown. She also listened for any information about other tieflings in the city.
+- Darvog spent the week attending night classes gaining him 1 renown.
+- Clementine spent the week scribing spell scrolls and salt circles for Professor Francis Glittersack earning her 1 renown at the Domus Magus.
+- Lars spent the week working on his short stories and helping his cousin Hans move into 449 Griffin Street.
+- Alder spent the week doing acts of service at the Children of Grace, gaining 1 renown.
