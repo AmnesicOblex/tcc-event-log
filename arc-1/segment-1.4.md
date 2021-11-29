@@ -80,3 +80,62 @@
 - Dottie spent three days in the fighting pits. She lost most of her fights, but made a small amount of coins and a new acquaintance, Pod the orc.
 - Lars spent 3 days in his room reading his cards and speaking with Halfwit and Pipsqueak.
 - Seplo spent three days training with Master Sunlu and Brother Balfir, climbing across rooftops and sneaking around the apartment at night.
+
+## Session 1.4.5
+
+### 35th of Highsun
+
+- The party looked over the letter from the Butcher again over breakfast and spoke with June about Teddy.
+- Afterwards the party went to Bloodpen Printing to ask Teddy about the bolded letters in the Vagabond Gazzete's main stories.
+- The party discovered a hidden message in the bolded letters announcing the victims names weeks before they are abducted.
+- The party decided that Teddy was their new prime suspect and invited Teddy to dinner with them and June tonight. They also discovered the next victims name, Loretta Lovebird. Teddy mentioned there was a potions professor at the Domus Magus named Loretta Lovebird.
+- Most of the party went to the Domus Magus to track down Loretta Lovebird, while Seplo stayed near Bloodpen Printing to keep an eye on Teddy. Seplo also sent a few of his Backstreet Boys with the party and a few back to 449 Griffin Street in case he needed to send any messages.
+- Darvog gave several gils of his blood to students in the Domus Mechinas who were studying Hellpox.
+- The party talked with Loretta, asked to use her as bait, she agreed and offered to brew some potions of invisibility for the party at their request.
+- While surveilling Teddy, one of Seplo's urchins came from 449 with a message from Steve, the constable, who informed them that there was a mechanical horseman wreaking havoc on Mandrake Square.
+- Seplo sent another runner to the Domus Magus to relay the message, before heading to the square, leaving a couple urchins surveilling Teddy.
+- Betty decided to keep shadowing Loretta while the rest of the party rushed to Mandrake Square.
+- There the party found the headless corpse of Olrock Irontooth, bolted to the mechanical horse, attacking civilians and shopkeepers.
+- The party made quick work of the clockwork beast, but after it fell the clockwork chassis closed itself off, began heating up, and a ticking clock started counting down from 90.
+
+## Session 1.4.6
+
+### 35th of Highsun, 765 (cont.)
+
+- The party frantically worked together to successfully defuse the Butcher's bomb. Darvog stored the disassembled bomb in the Clearwater Coach with Hans.
+- Afterwards Seplo returned to Bloodpen Printing to check on Theodore "Teddy" Henry Silverseed. Finding both Teddy and his Backstreet Boys mysteriously missing, Seplo immediately returned to the Domus Magus to inform the rest of the party.
+- The party headed to 449 Griffin Street and found that the Seplo's Backstreet Boys and June the intern were both suspiciously missing.
+- The party spoke with Loretta Lovebird and decided to leave her with the Yellowbell Constables in a disguise while they tracked down Teddy.
+- Seplo lead the party to Teddy's Townhouse in North Rosecrown at 891 Ravenwood Lane. The lights were all off in the apartment so the party decided to look around.
+- Lars spoke with Renday, the draft horse in the barn, and learned that Teddy is in the house, along with 'the shinies'.
+- Seplo climbed onto the barn's roof and teleported into Teddy's house.
+- Seplo snuck around the house looking for any inhabitants. He noticed an architectural anomaly in the house that might conceal some sort of hidden chamber. He also found two of hiis Backstreet Boys locked in a guest bedroom. After finding the urchins, Seplo let the rest of the party into the townhouse.
+- While examining the master bedroom, Seplo noticed a trapdoor leading to the attic. In the attic Seplo found what appears to be the armor of the great mute hero, Ironclad.
+
+## Session 1.4.7
+
+### 35th of Highsun, 765 (cont.)
+
+- The party continued to investigate Teddy's townhouse. Betty took Ironclad's Heartgem and discovered that it fits in her hamer, but it cannot be used while the gem from the Shimmer is in place.
+- The party found some of Teddy's notes which shed some light on his murderous motivation.
+- Lars used a clue found in Teddy's notes by Clementine to brute force the passcode to the secret elevator. Unfortunately, Lars failed several attempts while looking for the right passcode which activated a security system, an automaton with the mouth of Daisy Larkspur.
+- Lars, Seplo, and Clementine fled in the elevator to the basement while Betty, Darvog, and Dottie fought the automaton, who awakened another automaton. Betty killed the first automaton, freeing Daisy's soul and binding her to the hammer as a specter. Dottie called on the Child for aid, who responded by sending Virtue, a blazing crown wreathed in hands and mouths that sung bolstering songs to buff the party.
+- The rest of the party found June in the basement, unconscious while Betty, Darvog, and Dottie took the elevator down to join them.
+- Teddy came out of a back room and tried to convince the party he was working for the greater good, but the party didn't listen to his silver tongued words and they engaged in a deadly battle.
+- The party suffered several deep wounds, but were able to land a mortal blow on Teddy.
+- Before Teddy died, he triggered a trap that locked the doors and flooded with room with a gas derived from the leaves and sap of the Iriswood tree.
+- The party plummeted into a dark and cold dream, through branches of silver and steel, landing in the bedroom of an elvish child.
+
+## Session 1.4.8
+
+### 35th of Highsun, 765 (cont.)
+
+- The party navigated their way through Teddy's memory palace, learning about some of his past.
+
+### 36th of Highsun, 765
+
+- After escaping the memory palace, an automaton modeled after the form of Teddy himself escaped the basement laboratory with the party following behind.
+- June stayed behind to get the constables while the party chased Teddy through the city to Triport Central Station.
+- Teddy and the party scaled the scaffolding of the station to the rafters where they had a final showdown.
+- Betty landed the fatal blow, but Teddy's Death Curse gouged out her left eye.
+- The automaton fell lifeless to the station concourse and the party returned home to nurse their wounds and take a long rest.
